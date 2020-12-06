@@ -1,5 +1,5 @@
 Privacy Policy
-Nikolai Stepanov built the Parkour Extreme Pro app as a Commercial app.
+Nikolai Stepanov built the Parkour Mobile Pro app as a Commercial app.
 This SERVICE is provided by Nikolai Stepanov and is intended for use as is.
 
 This page is used to inform visitors regarding my
